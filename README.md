@@ -1,3 +1,3 @@
 # qwertyui
 
-https/github.vknfbotnjuylñkhñkiuyg.com
+[Tu Proyecto](https://xdgtweb.github.io/qwertyui/index.html)
